@@ -1,3 +1,3 @@
-# SriLab.Ai India
-SriLab.Ai India
+# SriLab.AI India
+SriLab.AI India
 
